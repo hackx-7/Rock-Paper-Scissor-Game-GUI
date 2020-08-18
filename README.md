@@ -6,7 +6,7 @@
 ## Contact Me 📞
 
 ## Instagram
-https://www.instagram.com/py5ive/
+https://www.instagram.com/__manas07__/
 
 ## TELEGRAM
 https://t.me/py5ive
